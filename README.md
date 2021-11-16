@@ -13,6 +13,7 @@ INGREDIENTS
 3/4 cup whole milk
 
 Directions
+
 In a large bowl, combine almond paste and butter; beat until well blended. Gradually add sugar, beating until light and fluffy. Add eggs, one at a time, beating well after each addition. In a small bowl, gently toss cherries and 1 tablespoon flour. Set aside.
 Combine the baking powder, salt, remaining flour; add to the creamed mixture alternately with milk, beating well after each addition.
 Spoon a sixth of the batter into each of two greased and floured 8x4-in. loaf pans; sprinkle layers with half of the fruit. Cover with another layer of batter and sprinkle with remaining fruit. Top with remaining batter; smooth with spatula.
