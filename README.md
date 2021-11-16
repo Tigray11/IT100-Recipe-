@@ -10,10 +10,14 @@ List of Ingredients and Instructions to create delicious meals all at your finge
 
 Take a peek and put a touch or pinch of whatever to make it your very own :)
 
-'Almond Tea Bread'
-
-'Chili'
+'Skillet-Roasted Brussels Sprouts with Pomagranate and Pistachios'
+![brussels sprouts with pp](https://user-images.githubusercontent.com/94158648/141927117-5187f130-6cd6-439f-a767-6dcc4755f4fb.jpg)
 
 'Broccoli-Walnut Pesto Pasta'
+![Pesto pasta](https://user-images.githubusercontent.com/94158648/141927156-0e839623-7509-4407-a353-7012a594c34f.jpg)
 
-'Skillet-Roasted Brussels Sprouts with Pomagranate and Pistachios'
+'Almond Tea Bread'
+![Almond Tea Bread](https://user-images.githubusercontent.com/94158648/141927166-0fe25bc4-1eb0-4b0c-a972-03957c85cd4d.jpeg)
+
+'Chili'
+![chili](https://user-images.githubusercontent.com/94158648/141927358-62eb81cf-83b5-4d66-a92c-8c1a51212ca9.png)
