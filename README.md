@@ -1,4 +1,4 @@
-# IT100-Recipes
+# IT100-Delicious Recipes
 
 Bon Appétit! Recipes for Healthy Living, Taste of Home Cooking, Entertaining Friends! 
 
