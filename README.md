@@ -19,5 +19,10 @@ Take a peek and put a touch or pinch of whatever to make it your very own :)
 'Almond Tea Bread'
 ![Almond Tea Bread](https://user-images.githubusercontent.com/94158648/141927166-0fe25bc4-1eb0-4b0c-a972-03957c85cd4d.jpeg)
 
+
 'Chili'
 ![chili](https://user-images.githubusercontent.com/94158648/141927358-62eb81cf-83b5-4d66-a92c-8c1a51212ca9.png)
+
+
+DIG IN!
+![489-4894107_yummy-sticker-hungry-emoticon](https://user-images.githubusercontent.com/94158648/141928155-26ae5cc2-b923-48ad-a085-3bcffa6c706e.png)
