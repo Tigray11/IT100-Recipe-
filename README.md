@@ -1,4 +1,6 @@
-# IT100-Recipe-'Almond Tea Bread'
+# IT100-Recipes
+
+'Almond Tea Bread'
 
 INGREDIENTS:
 
