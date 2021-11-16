@@ -1,29 +1,19 @@
 # IT100-Recipes
 
+Bon Appétit! Recipes for Healthy Living, Taste of Home Cooking, Entertaining Friends! 
+
+Smell the aroma, create taste to your liking, devour meals you love and enjoy! 
+
+![wide-middle-eastern-food](https://user-images.githubusercontent.com/94158648/141925708-5e0eeef7-bc15-4913-aa6a-c52c8e9572d1.jpg)
+
+List of Ingredients and Instructions to create delicious meals all at your finger tips. 
+
+Take a peek and put a touch or pinch of whatever to make it your very own :)
+
 'Almond Tea Bread'
+
 'Chili'
+
 'Broccoli-Walnut Pesto Pasta'
+
 'Skillet-Roasted Brussels Sprouts with Pomagranate and Pistachios'
-
-INGREDIENTS:
-
-1 can (8 ounces) almond paste 
-1/4 cup butter, softened 
-1 cup sugar 
-3 large eggs, room temperature 
-1-1/2 cups fresh pitted cherries or blueberries 
-3 cups all-purpose flour, divided 
-4 teaspoons baking powder 
-1/2 teaspoon salt 
-3/4 cup whole milk
-
-Directions:
-
-In a large bowl, combine almond paste and butter; beat until well blended. Gradually add sugar, beating until light and fluffy. Add eggs, one at a time, beating well after each addition. In a small bowl, gently toss cherries and 1 tablespoon flour. Set aside.
-Combine the baking powder, salt, remaining flour; add to the creamed mixture alternately with milk, beating well after each addition.
-Spoon a sixth of the batter into each of two greased and floured 8x4-in. loaf pans; sprinkle layers with half of the fruit. Cover with another layer of batter and sprinkle with remaining fruit. Top with remaining batter; smooth with spatula.
-Bake at 350° until a toothpick inserted in the center comes out clean, about 1-1/4 hours. Cool for 10 minutes before removing from pans to wire racks to cool.
-
-Nutrition Facts:
-
-1 slice: 130 calories, 4g fat (1g saturated fat), 25mg cholesterol, 111mg sodium, 21g carbohydrate (10g sugars, 1g fiber), 3g protein
